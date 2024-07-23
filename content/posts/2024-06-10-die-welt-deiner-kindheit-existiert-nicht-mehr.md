@@ -123,7 +123,7 @@ bis zur Endstation wie Jahresringe Querstraße um Querstraße immer jünger.
 
 Auch damals hatte man eine Menge "Probleme":
 
-Die Dienstbotenfrage zum Beispiel ist eine Folge dieser Landflucht–Haushaltsführung war weitgehend manuell, 
+Die Dienstbotenfrage zum Beispiel ist eine Folge dieser Landflucht – Haushaltsführung war weitgehend manuell, 
 und auf das Vorhandensein großer Mengen abhängiger und niedrig ausgebildeter Arbeitskräfte angewiesen.
 Die waren dann aber schlagartig nicht zu kriegen.
 
